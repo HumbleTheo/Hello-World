@@ -1,6 +1,11 @@
 # Hello-World
-new and testing ideas/projects 
+
+new and testing ideas/projects
 
 Hello All, HumbleTheo here
 
-I am Humble and creative. I like learning about new changes in environment and research on them.        
+I am Humble and creative. I like learning about new changes in environment and research on them.
+
+anything
+
+Dogs are better than cats
